@@ -5,6 +5,7 @@
 
   ### Hi! I am **Jelvy Jade Abelidas** 🐱
   > *"I’m trying to paws-itively learn every day!"*
+  > *"ᴛʜʏ ᴡɪʟʟ ʙᴇ ᴅᴏɴᴇ"*
 
   🌱 Growing my skills • 💻 Exploring tech • ✨ Meow-gical progress ahead
 </div>
